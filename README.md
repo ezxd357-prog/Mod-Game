@@ -47,3 +47,6 @@ UI / UX
 ม็อดมีปัญหาแจ้งตรงนี้
 Discord: https://discord.gg/49UE74uu9f
 (แนบไฟล์ installer_log.txt มาด้วย)
+
+---
+คีย์เวิร์ดสำหรับค้นหา: Vaygren ม็อดภาษาไทย, Vaygren แปลไทย, Vaygren Lustful Temptation Thai Mod, Vaygren ซับไทย, แจกม็อดไทย Vaygren, Mod-Game ezxd357-prog
